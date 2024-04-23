@@ -2,7 +2,7 @@
 👯 Always open to collaboration and learning opportunities.
 💬 Ask me about anything related to mathematics or coding!
 📚 Love reading, self-improvement, and doing Yoga.
-⚡ Fun fact: When I'm not coding, you'll find me hitting the gym 🏋🏿 or enjoying a cup of coffee ☕.
+⚡ Fun fact: When I'm not coding, you'll find me enjoying nature with a cup of tea ☕.
 - 😄 Pronouns: She/her
 
 
